@@ -1,1 +1,2 @@
 Aidan Goldstein
+goldstai@oregonstate.edu
